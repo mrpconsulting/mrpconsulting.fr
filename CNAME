@@ -1,1 +1,1 @@
-pugh.dev
+morganpugh.com
